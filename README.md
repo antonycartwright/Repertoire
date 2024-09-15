@@ -1,5 +1,5 @@
-[Let There Be Love Chords by - Nat King Cole]
-(https://tabs.ultimate-guitar.com/tab/nat-king-cole/let-there-be-love-chords-4085323)
+Let There Be Love Chords by - Nat King Cole
+https://tabs.ultimate-guitar.com/tab/nat-king-cole/let-there-be-love-chords-4085323
 
 Fly Me To The Moon Chords by - Frank Sinatra feat. Count Basie
 https://tabs.ultimate-guitar.com/tab/frank-sinatra/fly-me-to-the-moon-chords-335196
