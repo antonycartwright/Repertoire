@@ -66,3 +66,6 @@ https://tabs.ultimate-guitar.com/tab/the-police/every-breath-you-take-chords-108
 https://tabs.ultimate-guitar.com/tab/the-police/roxanne-chords-953512
 https://tabs.ultimate-guitar.com/tab/james-taylor/carolina-in-my-mind-chords-1065978
 https://tabs.ultimate-guitar.com/tab/john-martyn/couldnt-love-you-more-chords-1712519
+https://tabs.ultimate-guitar.com/tab/ella-fitzgerald/gee-baby-aint-i-good-to-you-chords-2646369
+https://tabs.ultimate-guitar.com/tab/norah-jones/dont-know-why-chords-57811
+https://tabs.ultimate-guitar.com/tab/norah-jones/sunrise-chords-529990
